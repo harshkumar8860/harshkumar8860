@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @harshkumar8860
-- 👀 I’m interested in internships
+- 👀 I’m interested in internship
 - 🌱 I’m currently learning Web Development     
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me via- harshkumar8860@gmail.com
